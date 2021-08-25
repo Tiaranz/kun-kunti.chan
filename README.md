@@ -1,1 +1,0 @@
-# kun-kunti.chan
